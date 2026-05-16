@@ -1,4 +1,4 @@
-# 
+# Get the ultimate scalping bot for derivatives with premium Trading Bot for scalping bot for derivatives | API-integration & liquidity-provision. Featuring API-integration and
 
 
 
